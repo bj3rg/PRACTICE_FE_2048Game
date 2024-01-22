@@ -3,3 +3,4 @@
 
 Game Link:
 https://bj3rg.github.io/2048-Game/
+-tinatamad na iedit hahaha-
